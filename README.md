@@ -4,7 +4,7 @@
 
 # ![me](https://github.com/dearoleander/images/blob/main/cutie.gif) $\color{#f2a0be}\textsf{Hiya!}$ <br/> ![me](https://github.com/dearoleander/images/blob/main/bow1.webp) $\color{#f2a0be}\textsf{I'm Aleaf}$ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/048d04ef-a5f1-4ad0-b2e0-60ae74a57837" /> <br/>
   
-✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ <br/> $\color{#f084ab}\textsf{Check out my carrd n strawpage for more info (interests, dni etc)}$ ![me](https://github.com/dearoleander/images/blob/main/card.gif) </div> 
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ <br/> $\color{#f084ab}\textsf{Check out my carrd n strawpage(mobile friendly) for more info (interests, dni etc)}$ ![me](https://github.com/dearoleander/images/blob/main/card.gif) </div> 
 
 <div align="center">
 
