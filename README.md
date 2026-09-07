@@ -8,7 +8,7 @@
 
 <div align="center">
 
-$\color{#bc97db}\textsf{ Generally: C+H is ok! If you int, please note I don't speak very much unless w/ friends.}$ </div> 
+$\color{#bc97db}\textsf{ Generally: C+H is ok! If you int, please note I don't speak very much unless w/ friends. My status will always be idle!}$ </div> 
 
 <div align="center">
 
